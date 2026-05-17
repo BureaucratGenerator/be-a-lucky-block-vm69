@@ -1,4 +1,4 @@
-
+Exclusivo bee swarm simulator script é o melhor bee swarm simulator script com indetectável e recursos infinitos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
